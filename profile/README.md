@@ -27,6 +27,8 @@ Alpha Dex Bot is likely an automated tool or platform integrated with a decentra
 
 ---
 
+[![Alpha Dex Bot](https://i.ibb.co.com/VpsZTry/Gc-L8bxsa-AAEuj-I9.jpg)](https://t.me/alpha_web3_bot?start=9WHTxFbs)
+
 ## **Mem Coins**
 
 ### **Definition**
