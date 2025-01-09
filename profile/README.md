@@ -2,7 +2,7 @@
 
 [Visit Alpha Dex Bot ](https://t.me/alpha_web3_bot?start=9WHTxFbs)
 
-[![Alpha Dex Bot](https://i.ibb.co.com/c1y9jps/hq720.jpg)](https://t.me/alpha_web3_bot?start=9WHTxFbs)
+[![Alpha Dex Bot](https://i.ibb.co.com/Y0Vm1gR/Gdp-C7-PFXs-AA2-TYM.jpg)](https://t.me/alpha_web3_bot?start=9WHTxFbs)
 
 ## **Alpha Dex Bot**
 
